@@ -15,8 +15,6 @@
 
 ###
 
-<img align="right" height="150" src="https://a.pinatafarm.com/1920x1080/4d01cd1710/hacker-417a5fa3df1171f6fba0014651057f00-meme.jpeg"  />
-
 ###
 
 <div align="left">
